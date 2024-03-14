@@ -10,3 +10,4 @@ In this clue we need you to dig up the past, to when you were stuck in an elevat
 Option 3: #<br></br><tr></tr>#
 
 The answer awaits in the comments section, where pixels paint a picture of the next destination. Dive into the digital depths to uncover the next clue. The rhythm of the digital dance leads to the next waypoint, hidden beneath the surface of short-lived stories. Follow the beat to the platform where dances sway and trends play.
+
